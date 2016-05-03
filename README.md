@@ -1,1 +1,1 @@
-Poofy
+Poofy jacket
