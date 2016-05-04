@@ -1,1 +1,1 @@
-Poofy jackets are
+Poofy jackets are ugly
